@@ -2,5 +2,7 @@
 
 Hi Humans! 
 
-Im love Rick and Morty.
+I love Rick and Morty.
 The Story of Rick and Morty is so crasy and cool!
+
+And i need netflix pls give me
